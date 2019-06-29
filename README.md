@@ -1,3 +1,2 @@
 # 85Catania
-
-DALAO was RECEIVED
+大 佬 你 凉 了
